@@ -1,0 +1,2 @@
+# SIGED-certificado-secundaria-autenticacion-PINB920205MSPXJR09
+PINB920205MSPXJR09
